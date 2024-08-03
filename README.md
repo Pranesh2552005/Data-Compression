@@ -1,1 +1,1 @@
-Please don't take this seriously its just my try.But i did't get it completely. I got stressed and can't able to complete it.
+Please don't take this seriously its just my try.But i did't get it completely. I got stressed and can't able to complete it. I got many help from chatgpt like i will give the logics it will genrate code
